@@ -26,3 +26,4 @@ yang tertarik dengan dunia pemograman dan teknologi.
 
 [Instragram](https://www.instagram.com/s4tr_vr/)
 [Gambar](IMG-20260904-WA0046.jpg)
+[Vidio ](https://github.com/satria-17/ig/blob/main/lv_7366170555566918919_20260904205110.mp4)
