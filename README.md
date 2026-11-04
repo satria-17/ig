@@ -25,4 +25,4 @@ yang tertarik dengan dunia pemograman dan teknologi.
 <li>email: satriavictor98@gmail.com</li>
 
 [Instragram](https://www.instagram.com/s4tr_vr/)
-[Gambar](IMG-20260904-WA0046.jpg)
+[Gambar](IMG20261031103528)
