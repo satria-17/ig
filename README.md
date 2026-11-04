@@ -21,7 +21,7 @@ yang tertarik dengan dunia pemograman dan teknologi.
 <li>Website pribadi untuk menampilkan informasi dan project yang pernah dibuat</li>
 
 # hubungi saya
-<Li>instagram:s4tr_vr</Li>
+<Li>instagram:SadewA</Li>
 <li>email: satriavictor98@gmail.com</li>
 
 [Instragram](https://www.instagram.com/s4tr_vr/)
